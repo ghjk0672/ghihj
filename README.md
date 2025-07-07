@@ -16,7 +16,7 @@
 
 点击访问：<a href="https://sdbsd.pages.dev/">黑料-海角官方网</a>
 
-点击访问：<a href=https://gdas.pages.dev/"">黑料网精彩影视-海角</a>
+点击访问：<a href="https://gdas.pages.dev/">黑料网精彩影视-海角</a>
 
 点击访问：<a href="https://tyer.pages.dev/">黑料网精彩影视-海角官方</a>
 
